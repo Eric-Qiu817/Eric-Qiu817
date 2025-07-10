@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Eric-Qiu817
-- 👀 I’m interested in classic music
+- 👀 I’m interested in classical music
 - 🌱 I’m currently learning electrical and computer engineering
 - 💞️ I’m looking to collaborate on everything.
 - 📫 How to reach me qiuhaoting817@gmail.com
